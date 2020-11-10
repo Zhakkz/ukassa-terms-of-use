@@ -1,0 +1,1 @@
+# ukassa-terms-of-use
